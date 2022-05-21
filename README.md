@@ -1,5 +1,5 @@
 # The-defeat-plan-of-IELTS
-# 一轮单词：
+# 一轮单词
 Week 1:
 
 Week 2:
