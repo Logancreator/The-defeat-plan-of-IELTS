@@ -4,9 +4,9 @@
 ## First Round
 Week 1: 2022/05/21-2022/05/28 :blush: :blush: :blush: :blush: :blush: :blush: :blush:
 
-Week 2: 2022/05/29-2022/06/05 :blush: :blush: :blush: :blush:
+Week 2: 2022/05/29-2022/06/05 :blush: :blush: :blush: :blush: :blush: :blush: :blush:
 
-Week 3: 2022/06/06-2022/06/13
+Week 3: 2022/06/06-2022/06/13 :blush: :blush: :blush: :blush:
 
 +listening practice
 
