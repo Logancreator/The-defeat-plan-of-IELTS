@@ -6,11 +6,11 @@ Week 1: 2022/05/21-2022/05/28 :blush: :blush: :blush: :blush: :blush: :blush: :b
 
 Week 2: 2022/05/29-2022/06/05 :blush: :blush: :blush: :blush: :blush: :blush: :blush:
 
-Week 3: 2022/06/06-2022/06/13 :blush: :blush: :blush: :blush:
+Week 3: 2022/06/06-2022/06/13 :blush: :blush: :blush: :blush: :blush: :blush: :blush:
 
 +listening practice
 
-Week 4: 2022/06/14-2022/06/21
+Week 4: 2022/06/14-2022/06/21 :blush: :blush:
 
 Week 5: 2022/06/22-2022/06/29
 
